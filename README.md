@@ -1,1 +1,1 @@
-*SITE NOT REPONSIVE*
+Site Made For Practice Purpose
