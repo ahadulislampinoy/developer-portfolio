@@ -1,1 +1,1 @@
-Site Made For Practice Purpose, Nothing Special!
+Site Made For Practice Purpose, Nothing Special.
